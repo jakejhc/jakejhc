@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jihua ( or Jake) @jakejhc
+- 👋👋👋 Hello, this is Jihua @jakejhc 👋👋👋
 - 👀 I’m interested in ...soft electronics and AI
 - 📫 How to reach me ...https://www.linkedin.com/in/jihuac/
 
